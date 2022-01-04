@@ -2,9 +2,8 @@
 ## Overview
 
 ## Log
-- 2021/10/07 ...
-- 2021/10/05 .... 
 - 2021/10/01 decided to use GitHub Pages to create a website
+- 2022/01/04 started to do the website
 
 ## TODO
 ### website
