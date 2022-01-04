@@ -3,10 +3,25 @@ Hi, this is Joe, I'm from Shanghai China. I do interested in video games, I was 
 I used to ride horses, if you know a bit about equestrain then dreessage is what I focused on. Equestrain is a good sport that you can interact with horses, you
 could exactly feel your horse's feeling and mood. 
 
+
+## Social media
+Because China mainland do not allow residents to use google servies, so we use some different social media to contact.
+Wechat ID: joe2753718455
+QQ ID: 2753718455
+
+
 ## Now
 I am a second year student in department PPS
+Me and my roommate live near the tasco
 
-![This is an image](https://myoctocat.com/assets/images/base-octocat.svg)
+
+## Work experience
+I have not join a parttime or a full time job
+I have contributed in a few volunteering activities
+
+
+## My hobby
+
 
 
 ---
