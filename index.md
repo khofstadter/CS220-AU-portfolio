@@ -6,7 +6,9 @@ could exactly feel your horse's feeling and mood.
 
 ## Social media
 Because China mainland do not allow residents to use google servies, so we use some different social media to contact.
+
 Wechat ID: joe2753718455
+
 QQ ID: 2753718455
 
 
@@ -17,6 +19,7 @@ Me and my roommate live near the tasco
 
 ## Work experience
 I have not join a parttime or a full time job
+
 I have contributed in a few volunteering activities
 
 
