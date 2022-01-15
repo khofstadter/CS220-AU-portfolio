@@ -2,10 +2,11 @@
 ## Overview
 
 ## Log
-- 2021/10/01 decided to use GitHub Pages to create a website
-- 2022/01/04 started to do the website
-- 2022/01/09 study and review V&R map. plan to write the di-reflection
-- 2022/01/10 start to write di-reflection
+- 01/10/2021 decided to use GitHub Pages to create a website
+- 04/01/2022 started to do the website
+- 09/01/2022 study and review V&R map. plan to write the di-reflection
+- 10/01/2022 start to write di-reflection
+- 15/01/2022 checking and finishing the website
 
 ## TODO
 ### website
