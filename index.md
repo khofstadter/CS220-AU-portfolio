@@ -1,7 +1,8 @@
 # Joe Chen
-Hi, this is Joe, I'm from Shanghai China. I do interested in video games, I was high ranked in many games for example, league of legens, APEX Legens, PUBG etc.
+Hi, this is Joe, I'm from Shanghai China. I am interested in video games, I used to have high ranked in many games for example, league of legens, APEX Legens, PUBG etc.
 I used to ride horses, if you know a bit about equestrain then dreessage is what I focused on. Equestrain is a good sport that you can interact with horses, you
-could exactly feel your horse's feeling and mood. 
+could exactly feel your horse's feeling and mood by the action between you and the horse. I also be attracted by technical devices such as computer, laptop, and smartphone. 
+I have a bit experience and knowledge about these devices (but honesly just the hardware), and I like to spend some casual time to update them. 
 
 
 ## Social media
@@ -14,7 +15,8 @@ QQ ID: 2753718455
 
 ## Now
 I am a second year student in department PPS
-Me and my roommate live near the tasco
+
+I have done a dozen of assignments, most of them are essays.
 
 
 ## Work experience
@@ -24,7 +26,7 @@ I have contributed in a few volunteering activities
 
 
 ## My hobby
-
+When I have spare time, I usually play my computer at home. Sometimes I go to the centre of the town, watching the crowd and feeling the culture. 
 
 
 ---
