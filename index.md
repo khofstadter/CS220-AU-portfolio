@@ -1,5 +1,5 @@
 # Joe Chen
-Hi, this is Joe, I'm from Shanghai China. 
+Hi, this is Joe, I'm from Shanghai China. I am really interest in psychoanalysis, so I came to the UK to learn it.
 
 
 ## Social media
