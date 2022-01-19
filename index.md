@@ -1,9 +1,9 @@
 # Joe Chen
-Hi, this is Joe, I'm from Shanghai China. I am really interest in psychoanalysis, so I came to the UK to learn it. Now I am a psychosocial and psychoanalysis study year 2 student, I am pround of myself could study with my classmates. I like to help people, but sometimes I an a bit hesitate to communicate with others. I also like to observe poeple's behaviour, because I think human is the most mydterious object in the world. I traveled through almost the whole China, I have obserbed many different cultures in China and I love to find out the difference of residents between cities and countrysides.
+Hi, this is Joe, I'm from Shanghai China. I am really interest in psychoanalysis, so I came to the UK to learn it. Now I am a psychosocial and psychoanalysis study year 2 student, I am proud of myself could study with my classmates. I like to help people, but sometimes I am a bit hesitate to communicate with others. I also like to observe poeple's behaviour, because I think human is the most mydterious object in the world. I traveled through almost the whole China, I have observed many different cultures in China and I love to find out the difference of residents between cities and countrysides.
 
 
 ## Social media
-Because China mainland do not allow residents to use google servies, so we use some different social media to contact.
+Because China mainland do not allow residents to use google services, we use some different social media to contact.
 
 Wechat ID: joe2753718455
 
